@@ -9,7 +9,7 @@ Assistant Professor of Management, Harold Walter Siebens School of Business, Bue
 
 Storm Lake, Iowa
 
-[LinkedIn](https://www.linkedin.com/in/bretrichards) | [Email](mailto:bretrichards01@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/bretrichards) | 
 
 ---
 
