@@ -57,4 +57,4 @@ Combat Engineer Officer, Logistics & Transportation Officer, Platoon Leader, Ass
 
 ---
 
-For a full version including publications, dissertation committees, and professional service, please [contact me](mailto:bretrichards01@gmail.com).
+For a full version including publications, dissertation committees, and professional service, please
